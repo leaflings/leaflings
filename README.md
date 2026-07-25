@@ -8,10 +8,12 @@
 ▐▌ ▐▌▐▌ ▐▌▐▌ ▐▌▝▚▄▞▘▐▌  ▐▌
 ```
 
-<div align="right">
+<div align="justify">
 I'm scared of all ponytowners. W2I if you must. C+H if you want. I'm awkward and loserish and will ignore most attempts as socialization. 
 <br>
-Gif to the left by me, if you care.
+Gif to the left by me, if you care :eyes:
+<br><br>
 
-![](https://komarev.com/ghpvc/?username=notes&color=000000&style=flat&label=VIEWS)
+
+![](https://komarev.com/ghpvc/?username=leaflings&color=000000&style=flat&label=NOTES)
 </div>
