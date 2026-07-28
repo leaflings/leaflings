@@ -5,8 +5,7 @@
 I'm scared of all ponytowners; W2I if you must, C+H if you want!
 <br>I'm awkward, loserish, & I'll fail at most attempts of socialization.
 <br> <b>I<3TOUYATODOROKI</b>
-<br><br>
-Art to the left by me :eyes:
+<br>
 <br>
 
 ![](https://komarev.com/ghpvc/?username=leaflings&color=000000&style=flat&label=NOTES)
