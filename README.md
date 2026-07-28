@@ -1,12 +1,13 @@
-<img align="left" width="45%" src="https://file.garden/aG6wzaSlI01WWRJg/Pics/touya-2.gif">
+<img align="left" width="20%" src="https://file.garden/aG6wzaSlI01WWRJg/Pics/little-touya.png">
 
-<div align="justify">
+<div align="justify" width="50%">
 <h3>AARON</h3>
-I'm scared of all ponytowners. W2I if you must. C+H if you want. I'm awkward and loserish and will ignore most attempts of socialization. 
+I'm scared of all ponytowners; W2I if you must, C+H if you want!
+<br>I'm awkward, loserish, & I'll fail at most attempts of socialization.
 <br> <b>I<3TOUYATODOROKI</b>
 <br><br>
-Gif to the left by me, if you care :eyes:
-<br><br>
+Art to the left by me :eyes:
+<br>
 
 ![](https://komarev.com/ghpvc/?username=leaflings&color=000000&style=flat&label=NOTES)
 </div>
